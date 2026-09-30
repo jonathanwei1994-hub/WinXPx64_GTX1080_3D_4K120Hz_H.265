@@ -32,19 +32,13 @@ https://www.youtube.com/watch?v=ZGSFJqzasyk
 
 https://www.youtube.com/watch?v=PXnXEZs-gcM
 
-<img width="413" height="453" alt="2026-09-30 22_33_48-Display Properties" src="https://github.com/user-attachments/assets/886112ae-e490-4a0a-aad5-c4a9eba9904d" />
+<img width="413" height="453" alt="2026-09-30 22_33_48-Display Properties" src="https://github.com/user-attachments/assets/37750a37-58dd-423e-825c-bb9e42f3e301" />
 
 
 
-
-
-<img width="1500" height="1574" alt="v2-77f016f1b652b6b2926936d703c043f3_r" src="https://github.com/user-attachments/assets/e0e494b2-bcac-4553-9d11-14e3f094f335" />
-
+<img width="758" height="558" alt="2026-10-01_02_01_07-Windows_Task_Manager" src="https://github.com/user-attachments/assets/97b3cc86-507a-4b63-ac5d-d9e20355f00e" />
 
 
 
-
-
-<img width="758" height="558" alt="2026-10-01 02_01_07-Windows Task Manager" src="https://github.com/user-attachments/assets/b087d7af-7d0c-4011-9025-844b32404efd" />
-
+<img width="1500" height="1574" alt="v2-77f016f1b652b6b2926936d703c043f3_r" src="https://github.com/user-attachments/assets/943ad1ed-7abe-4f37-86fb-6f2e0fedc243" />
 
